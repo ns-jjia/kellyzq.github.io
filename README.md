@@ -1,2 +1,2 @@
-# kellyzq7.github.io
+# kellyzq.github.io
 kelly's homepage
